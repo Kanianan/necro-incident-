@@ -31,3 +31,6 @@ khora#8008 "noss have my babies" -aftu
 
 
 Ty to inv_c helping with English grammar
+
+
+# FYI most of this cannot be proven so it is hear say, so believe what you want
